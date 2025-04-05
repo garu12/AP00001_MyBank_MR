@@ -1,0 +1,1 @@
+vamos en el video 17 de Junio minuto 1:23:39
